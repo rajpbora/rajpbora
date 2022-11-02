@@ -11,8 +11,6 @@
 
 - 💬 Talk to me about **AI&ML and Stocks**
 
-- 📫 Contact me @ **rajbora1000@gmail.com**
-
 - 📄 Know about my experiences [linkedin.com/in/rajpbora/](linkedin.com/in/rajpbora/)
 
 <h3 align="left">Connect with me:</h3>
