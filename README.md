@@ -26,6 +26,5 @@ _Data Engineer • Full-Stack Developer • AI-Product Builder_
 ---
 
 #### 📬 Let’s Connect
-[Portfolio](https://rajpbora.com) • [LinkedIn](https://linkedin.com/in/rajpbora) • rajpbora@gmail.com
-
+[Portfolio](https://rajpbora.com) • [LinkedIn](https://linkedin.com/in/rajpbora) 
 ---
